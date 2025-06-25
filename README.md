@@ -43,7 +43,7 @@
 
 点击访问：<a href="https://hl428.pages.dev/">独家黑料</a>
 
-点击访问：<a href="https://hl413.pages.dev/">双反差婊吃瓜爆料黑料免费</a>
+点击访问：<a href="https://hl442.pages.dev/">国内吃瓜爆料黑料社曝门</a>
 
 主要内容：
 
@@ -63,4 +63,4 @@ Telegram频道传送门：热门Telegram频道合集，分类清晰，一键直�
 
 聚焦重大娱乐与网红黑料事件，清晰还原每次爆料发展路径，是回顾大瓜、追踪舆情演变的实用工具。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/kkk20250625/kkk12）</span>
